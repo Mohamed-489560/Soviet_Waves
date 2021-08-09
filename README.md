@@ -12,6 +12,7 @@ https://docs.google.com/forms/d/e/1FAIpQLSeLEIoFqonwH1zgnpibf8aaDpEybyHF1qcW5xR0
 
 3- It is forbidden to put random answers, and the formula for FLAG is F!ag{XXX_XXX_XX:XX_XXX_XXX_XX}
 
+![Soviet Waves](https://user-images.githubusercontent.com/48302135/128721041-23d602b6-1c63-465c-b094-aa45932f320d.jpg)
 
 
 # Contact Me :
