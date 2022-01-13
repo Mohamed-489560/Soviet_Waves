@@ -22,7 +22,7 @@ https://docs.google.com/forms/d/e/1FAIpQLSeLEIoFqonwH1zgnpibf8aaDpEybyHF1qcW5xR0
 
 Facebook : https://www.facebook.com/m489560
 
-Linkedin : https://www.linkedin.com/in/mohamed-ibrahim-537561135
+Linkedin : https://www.linkedin.com/in/m489560
 
 To join our group : https://www.facebook.com/groups/961055997604329
 
