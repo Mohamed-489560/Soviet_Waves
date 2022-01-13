@@ -24,6 +24,8 @@ Facebook : https://www.facebook.com/m489560
 
 Linkedin : https://www.linkedin.com/in/m489560
 
+Email : m489560@gmail.com
+
 To join our group : https://www.facebook.com/groups/961055997604329
 
 #Security_Society
